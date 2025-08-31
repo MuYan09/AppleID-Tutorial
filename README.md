@@ -16,9 +16,9 @@
 
 > 此教程为了是让大家学习，切勿做违法犯罪的事哦！
 
-1. [TG群组](https://t.me/juzixpchat) ：[@juzixpchat](https://t.me/juzixpchat)（定期分享共享ID）
+1. [TG频道](https://t.me/juzixp)：[@juzixp](https://t.me/juzixp) （定期分享共享ID免费订阅链接）
 
-2. [TG频道](https://t.me/juzixp)：[@juzixp](https://t.me/juzixp) （定期分享共享ID）
+2. [TG群组](https://t.me/juzixpchat) ：[@juzixpchat](https://t.me/juzixpchat)（定期分享共享ID）
 
 不定期更新免费订阅节点,共享小火箭账号，美区AppleID等。
 
